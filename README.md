@@ -1,0 +1,1 @@
+# zigato-random-generator-privacy-policy

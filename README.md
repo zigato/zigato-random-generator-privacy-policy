@@ -24,7 +24,7 @@ This Privacy Policy may be updated from time to time. Any changes will be posted
 
 Contact Us
 If you have any questions about this Privacy Policy, please contact:
-Email: nguyenkhacan146@gmail.com
+Email: zigatodev@gmail.com
 
 ----------------------------------------------------------------------------------------------------------------------------
 ----------------------------------------------------------------------------------------------------------------------------
@@ -55,4 +55,4 @@ Chính sách này có thể được cập nhật và sẽ được công bố t
 
 Liên hệ
 Mọi thắc mắc xin liên hệ:
-Email: nguyenkhacan146@gmail.com
+Email: zigatodev@gmail.com
